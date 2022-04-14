@@ -1,3 +1,5 @@
+https://www.youtube.com/watch?v=8sDMwBIlgwE
+
 
 ### ⚠ Notice! We've rebranded from OBS.Ninja to VDO.Ninja - all else is staying the same ✨
 OBS.Ninja links will start redirecting to VDO.Ninja automatically on January 14th, 2022. If there are issues, simply refresh both the sender and viewer-side links or rename your links from obs.ninja to vdo.ninja.
